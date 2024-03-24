@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me here
 - 😄 Pronouns: ...
-- ⚡ Fun fact: bitcoin gonna take over the world
+- ⚡ Fun fact: bitcoin gonna take over the world!
 
 <!---
 darkowll/darkowll is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
