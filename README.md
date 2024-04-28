@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and trading stuff
 - 🌱 I’m currently learning web3 
 - 💞️ I’m looking to collaborate on  .
-- 📫 How to reach me here !!
+- 📫 How to reach me here !
 - 😄 Pronouns: ...
 - ⚡ Fun fact: bitcoin gonna take over the world!
 
