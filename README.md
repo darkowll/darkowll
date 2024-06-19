@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning web3 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me here 
-- 😄 Pronouns: aawoi
+- 😄 Pronouns: aaw
 - ⚡ Fun fact: bitcoin gonna take over the world!
 
 <!---
