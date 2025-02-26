@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @darkowll 
 - 👀 I’m interested in crypto and trading stuff !
 - 🌱 I’m currently learning web3 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on things
 - 📫 How to reach me here 
 - 😄 Pronouns: oouwllious
 - ⚡ Fun fact: bitcoin is not gonna take over the world!👀
